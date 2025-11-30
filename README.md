@@ -1,1 +1,1 @@
-# yaz-l-m-m-hendisli-i-oryantasyonu-vize-devi
+https://www.youtube.com/watch?v=jYvCxJrORX4
